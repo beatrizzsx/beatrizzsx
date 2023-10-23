@@ -13,7 +13,7 @@
 - Minha comida favorita e : pizza, batata frita , strogonoff , etc..
 - Para o meu futuro eu almejo : entar eu uma faculdade fora do pais e estudar engenharia civil;
 - Meu time de coração e o atletico pr ;
-
+![](https://static.ric.com.br/uploads/2022/08/athletico-pr-2.jpg)
 
 
 
